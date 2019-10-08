@@ -9,3 +9,8 @@ Some ideas that have come to me from time to time after going through my short l
 
 3. Money is not your only currency.
 
+
+
+
+Not mine, but I like them:
+1. No citizen has a right to be an amateur in the matter of physical training…what a disgrace it is for a man to grow old without ever seeing the beauty and strength of which his body is capable. - Socrates
